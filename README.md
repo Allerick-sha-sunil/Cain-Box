@@ -1,0 +1,2 @@
+# Cain-Box
+CAIN CORP proudly presents the revolutionary product CAIN Box ( A Class Automation Device ). This device actually controls the classroom electrical appliances through voice recognition and saves electricity in the day to day life. And this product is delivered in the name of CAIN CORP. For more info about this product just contact CAIN CORP through LinkedIn, Facebook, Instagram, Youtube, Twitter.
